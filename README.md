@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @anisChengre s
 - 
-- 👀 I’m interested in learning, playingb
+- 👀 I’m interested in learning, playing..
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on
 - 📫 How to reach me ..
